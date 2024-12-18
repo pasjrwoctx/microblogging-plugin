@@ -25,4 +25,6 @@ I dont understand how I got it together in the first place.
     This program comes with ABSOLUTELY NO WARRANTY; for details type `show w'.
     This is free software, and you are welcome to redistribute it providing remains a full open-sourced plugin.
 
-If you enjoy this Please support this #disabled man living in #poverty today $5-10-15 It All Helps, via  #cashapp at $woctxphotog or via #paypal at https://www.paypal.com/donate?campaign_id=5BN5MB5BVQL22
+If you enjoy this Please support this #disabled man living in #poverty today $5-10-15 It All Helps,
+via  #cashapp at $woctxphotog or via 
+#paypal at https://www.paypal.com/donate?campaign_id=5BN5MB5BVQL22
